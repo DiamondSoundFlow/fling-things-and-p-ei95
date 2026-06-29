@@ -1,4 +1,4 @@
-
+fling things and people Scripts best is the best fling things and people Script, featuring auto-farm and unlimited stamina. Safe and powerful for all
 
 
 
